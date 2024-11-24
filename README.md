@@ -2,7 +2,7 @@
 👀 I’m interested in 'Social Network'
 🌱 I’m currently reviewing Ben Alffleck's Movie 'Pearl Harbour'
 💞️ I’m looking to collaborate to review on Brad Pitt's 'Troy'
-📫 How to reach me : 'Source Codes' de 'Devs'
+📫 How to reach me : via 'Source Code' de 'Devs'
 😄 Pronouns: Elle
 ⚡ Fun fact: I am into Art as if seamlessly into Audrey Herburt's career et life that 'Roman Holiday' et enjoy 'Lord of Ring'
 
