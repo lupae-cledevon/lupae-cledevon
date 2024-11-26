@@ -1,7 +1,7 @@
 👋 Hi, I’m Jessie/e (alias: cencen/Dawn) - as if 'Bourne's Identity' von 'A Good Will Hunter'
 👀 I’m interested in 'Social Network'
-🌱 I’m currently reviewing Ben Alffleck's Movie 'Pearl Harbour' et 'Argo'
-💞️ I’m looking to collaborate to review on Brad Pitt's 'Troy' et 'Mr et Mrs. Smith'
+🌱 I’m currently reviewing Ben Alffleck's Movie 'Pearl Harbour' et 'Argo' and considering 'A Separation' of the two themes.
+💞️ I’m looking to collaborate with 'Friends' to review on Brad Pitt's 'Troy' et 'Mr et Mrs. Smith'
 📫 How to reach me : 'Source Code' de 'Devs'
 😄 Pronouns: Elle -  Ni 'Maid a Manhattan' Ni 'Pretty Woman' parceque you could not get the MAIL from them.
 ⚡ Fun fact: I am into Art as if seamlessly into Audrey Herburt's career et life that 'Roman Holiday' to review Bill de Clinton --Oops
