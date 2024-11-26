@@ -3,7 +3,7 @@
 🌱 I’m currently reviewing Ben Alffleck's Movie 'Pearl Harbour' et 'Argo'
 💞️ I’m looking to collaborate to review on Brad Pitt's 'Troy' et 'Mr et Mrs. Smith'
 📫 How to reach me : 'Source Code' de 'Devs'
-😄 Pronouns: Elle -  Ni 'Maid a Manhattan' Ni 'Pretty Woman' parceque 'you've GOT the MAIL' NOT from them.
+😄 Pronouns: Elle -  Ni 'Maid a Manhattan' Ni 'Pretty Woman' parceque you could not get the MAIL from them.
 ⚡ Fun fact: I am into Art as if seamlessly into Audrey Herburt's career et life that 'Roman Holiday' to review Bill de Clinton --Oops
 
 <!---
