@@ -4,7 +4,7 @@
 💞️ I’m looking to collaborate to review on Brad Pitt's 'Troy' et 'Mr et Mrs. Smith'
 📫 How to reach me : 'Source Code' de 'Devs'
 😄 Pronouns: Elle -  Neither 'Maid a Manhattan' Nor 'Pretty Woman' because neither of them needs to get the EMAIL
-⚡ Fun fact: I am into Art as if seamlessly into Audrey Herburt's career et life that 'Roman Holiday' et enjoy 'Lord of Rings' in the epoch of Knowledge Economy by Bill de Clinton --Oops
+⚡ Fun fact: I am into Art as if seamlessly into Audrey Herburt's career et life that 'Roman Holiday' in the epoch of Knowledge Economy by Bill de Clinton --Oops
 
 <!---
 lupae-cledevon/lupae-cledevon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
