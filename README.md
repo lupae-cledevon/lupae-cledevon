@@ -4,7 +4,7 @@
 💞️ I’m looking to collaborate with 'Friends' to review on Brad Pitt's 'Troy' et 'Mr et Mrs. Smith'
 📫 How to reach me : After you deciper 'Mona lisa's Smile', you will probably attain the pass to 'Dead Poets Society'.
 😄 Pronouns: Elle -  ni 'Maid a Manhattan' ni 'Pretty Woman' parceque YOU could not have GOT the MAIL from either no matter how SLEEPLESS you are in SEATTLE.
-⚡ Fun fact: I am into Film Theory as if to completely have comprehended 'American Beauty' Audrey Herburt's 'Roman Holiday' in order to properly review Bill de Clinton --Oops
+⚡ Fun fact: I am into Film Theory so to have completely comprehended 'American Beauty' Audrey Herburt's 'Roman Holiday' and now in writing critisms on Bill de Clinton --Oops
 
 <!---
 lupae-cledevon/lupae-cledevon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
