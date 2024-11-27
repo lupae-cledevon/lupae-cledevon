@@ -2,8 +2,8 @@
 👀 I’m interested in 'Social Network'
 🌱 I’m currently reviewing Ben Alffleck's Movie 'Pearl Harbour' et 'Argo' and considering 'A Separation' of the two themes.
 💞️ I’m looking to collaborate via 'Friends' to review on Brad Pitt's 'Troy' et 'Mr et Mrs. Smith'
-📫 How to reach me : 'Source Code' de 'Devs'
-😄 Pronouns: Elle -  ni 'Maid a Manhattan' ni 'Pretty Woman' parceque You could not have GOT the MAIL from them.
+📫 How to reach me : After you deciper 'Mona lisa's Smile', you will attain the pass to 'Dead Poets Society'.
+😄 Pronouns: Elle -  ni 'Maid a Manhattan' ni 'Pretty Woman' parceque YOU could not have GOT the MAIL from them.
 ⚡ Fun fact: I am into Art as if seamlessly into 'American Beauty' Audrey Herburt that 'Roman Holiday' to review Bill de Clinton --Oops
 
 <!---
