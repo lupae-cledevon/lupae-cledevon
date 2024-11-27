@@ -4,7 +4,7 @@
 💞️ I’m looking to collaborate via 'Friends' to review on Brad Pitt's 'Troy' et 'Mr et Mrs. Smith'
 📫 How to reach me : 'Source Code' de 'Devs'
 😄 Pronouns: Elle -  ni 'Maid a Manhattan' ni 'Pretty Woman' parceque You could not have GOT the MAIL from them.
-⚡ Fun fact: I am into Art as if seamlessly into Audrey Herburt's career et life that 'Roman Holiday' to review Bill de Clinton --Oops
+⚡ Fun fact: I am into Art as if seamlessly into 'American Beauty' Audrey Herburt that 'Roman Holiday' to review Bill de Clinton --Oops
 
 <!---
 lupae-cledevon/lupae-cledevon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
