@@ -5,7 +5,7 @@ Jessica/Jessie was my penname into another creative writing project.
 💞️ I’m into communication
 📫 How to reach me : cjie3331@outlook.com
 😄 Pronouns: She
-⚡ Fun fact: I have used communication much earlier than I did digital simulation, emulation et software & hardware experiments on it. And if you are into security, why you publish them to be celebrity? Last but not least， we probably need to get enrolled into Rochester Institute of Tech to be eventually hook up with an RPI EnginEER. Probably the dating expenses et wedding wow , etc were as hard as diamond to be materialised.
+⚡ Fun fact: I have used communication much earlier than I did digital simulation, emulation et software & hardware experiments on it. And if you are into security, why you publish them to be celebrity? Last but not least， we probably need to get enrolled into Rochester Institute of Tech to be eventually hook up with an RPI EnginEER. Probably the dating expenses et wedding vaeo etc were as hard as diamond to be materialised.
 Pity I am just a crying sister yet.😱
 
 <!---
