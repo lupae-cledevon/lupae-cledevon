@@ -5,7 +5,7 @@ Jessica/Jessie was my penname into another creative writing project.
 💞️ I’m into communication
 📫 How to reach me : cjie3331@outlook.com
 😄 Pronouns: She
-⚡ Fun fact : I am into Intellectual Property.
+⚡ Fun fact : My major is Engineer
 
 <!---
 lupae-cledevon/lupae-cledevon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
