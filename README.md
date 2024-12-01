@@ -1,10 +1,11 @@
-👋 Hi, I’m Jie Chen (alias - cencen - meaning Dawn). Those know me address me Jessica/Jessie.
+👋 Hi, I’m Jie Chen (alias: cencen - meaning Dawn). 
+Jessica/Jessie was my penname into another creative writing project.
 👀 I’m interested in writing
 🌱 I’m currently reviewing my own writing drafts
-💞️ I’m into Literacy Theory
+💞️ I’m into communication
 📫 How to reach me : cjie3331@outlook.com
 😄 Pronouns: She
-⚡ Fun fact : I dont like fun.
+⚡ Fun fact : I am into Intellectual Property.
 
 <!---
 lupae-cledevon/lupae-cledevon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
