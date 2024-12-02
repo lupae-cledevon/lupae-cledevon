@@ -6,7 +6,7 @@ Jessica/Jessie was my penname into another creative writing project. Lily is the
 📫 How to reach me : cjie3331@outlook.com
 😄 Pronouns: She
 ⚡ Fun fact: if you are into security, why you publish them to be celebrity?And we probably need to get enrolled into Rochester Institute of Tech physiology to be eventually hooking/ed up with RPI Nuclei Core to be bombardingly opening the door of MIT, Havard et Chicago de ANL in return for their realisation of approximately true ground the Pearl Harbour aesthetically appreciable tri-angle intimate relationship on computer screen. Pity I am just a writer using others' digital products only. 
- ...OO...ps, sorry, the wrong person. 
+ ...OO...ps, sorry, the wrong person. In the Name of Father, they are playing Mafia the Game.
 <!---
 lupae-cledevon/lupae-cledevon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
