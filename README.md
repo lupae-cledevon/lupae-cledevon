@@ -5,7 +5,7 @@ Jessica/Jessie was my penname into another creative writing project.
 💞️ I’m into communication
 📫 How to reach me : cjie3331@outlook.com
 😄 Pronouns: She
-⚡ Fun fact: if you are into security, why you publish them to be celebrity?And we probably need to get enrolled into Rochester Institute of Tech to be eventually hooking/ed up with RPI EnginEERs to be sweet berries. 
+⚡ Fun fact: if you are into security, why you publish them to be celebrity?And we probably need to get enrolled into Rochester Institute of Tech physiology undergraduate to be eventually hooking/ed up with RPI EnginEERs to be sweet berries glorying Havard et Chicago. 
 Pity I am just a crying sister yet.😱
 
 <!---
