@@ -1,5 +1,5 @@
 👋 Hi, I’m Jie Chen (alias: cencen - meaning Dawn). 
-Jessica/Jessie was my penname into another creative writing project.
+Jessica/Jessie was my penname into another creative writing project. Lily is the name of one of my creative writing drafts' heroine.
 👀 I’m interested in writing
 🌱 I’m currently reviewing my own writing drafts
 💞️ I’m into communication
