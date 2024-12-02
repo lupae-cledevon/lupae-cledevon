@@ -5,7 +5,7 @@ Jessica/Jessie was my penname into another creative writing project. Lily is the
 💞️ I’m into communication
 📫 How to reach me : cjie3331@outlook.com
 😄 Pronouns: She
-⚡ Fun fact: if you are into security, why you publish them to be celebrity?And we probably need to get enrolled into Rochester Institute of Tech physiology to be eventually hooking/ed up with RPI Nuclei Core to be bombardingly opening the door of MIT, Havard et Chicago de ANL in return for their realisation of approximately true ground the Pearl Harbour aesthetically appreciable tri-angle intimate relationship. Pity I am just a writer using others' digital products only. 
+⚡ Fun fact: if you are into security, why you publish them to be celebrity?And we probably need to get enrolled into Rochester Institute of Tech physiology to be eventually hooking/ed up with RPI Nuclei Core to be bombardingly opening the door of MIT, Havard et Chicago de ANL in return for their realisation of approximately true ground the Pearl Harbour aesthetically appreciable tri-angle intimate relationship on computer screen. Pity I am just a writer using others' digital products only. 
  ...OO...ps, sorry, the wrong person. 
 <!---
 lupae-cledevon/lupae-cledevon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
